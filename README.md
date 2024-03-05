@@ -1,6 +1,6 @@
 ### hallo ^_^
 
-im UNLUCLKY!! 
+im UNLUCKY!! 
 
 - highschooler trying to build a portfolio for coleg
 
