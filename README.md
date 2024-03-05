@@ -3,7 +3,8 @@
 im UNLUCKY!! 
 
 - highschooler trying to build a portfolio for coleg
-
+- splatoon pro player
+- chronically online 
 
 <a align="center" href="https://github.com/unluckytokyo">
   <img align="center" src="https://github-readme-stats.vercel.app/api?username=unluckytokyo&theme=tokyonight" />
