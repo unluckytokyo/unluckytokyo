@@ -2,6 +2,8 @@
 
 im UNLUCKY!! 
 
+i do things around here.. check out my hobbies ig!!
+
 - highschooler trying to build a portfolio for coleg
 - splatoon pro player
 - chronically online 
